@@ -1,2 +1,2 @@
 # ANTI-HACKERS-python-app-file-.exe-
-umm idk
+umm idk (NEEDS A PC)
