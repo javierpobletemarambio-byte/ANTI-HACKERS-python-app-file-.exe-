@@ -1,0 +1,1 @@
+this app its made by a 1 person and thats all :)
